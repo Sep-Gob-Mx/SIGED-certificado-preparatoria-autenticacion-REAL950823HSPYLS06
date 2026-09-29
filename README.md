@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-REAL950823HSPYLS06
+REAL950823HSPYLS06
